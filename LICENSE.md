@@ -1,4 +1,4 @@
-#  
+#  Experience my avatar like never before with my avatar hidden Scripts, the #1 Script. Includes unlimited stamina and no cooldown for unbeatable
 
 
 
